@@ -6,5 +6,5 @@ The tutorials themselves weren't difficult, I just needed to read more carefully
 
 
 
-I had a medium-effort time, my main problem was just not paying attention to wear I downloaded the game file. Again, I just didn't read the tutorials too carefully.
+I had a medium-effort time, my main problem was just not paying attention to where I downloaded the game file. Again, I just didn't read the tutorials too carefully.
 
